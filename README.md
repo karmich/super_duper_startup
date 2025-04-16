@@ -1,3 +1,3 @@
-Soon we will earn al money of the world!!!*
+Soon we will earn all money of the world!!!*
 
 * maybe
